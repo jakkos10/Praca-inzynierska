@@ -1,1 +1,1 @@
-# Praca-inzynierska
+# Praca-inzynierska - Panoramy
